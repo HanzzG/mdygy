@@ -1,4 +1,4 @@
-//═══════[ THANKS 2K SUBSCRIBER ]════════\\
+
 /*
 • SCRIPT FULL NO ENC
 • APIKEY PREMIUM
